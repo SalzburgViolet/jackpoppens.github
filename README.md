@@ -15,6 +15,8 @@ instagram: [https://www.instagram.com/jackppopens/](url)
 
 LinkedIn: [https://www.linkedin.com/in/jack-poppens-0375ab308/](url)
 
+email: jackpoppens@gmail.com or JPOPPENS@email.sc.edu
+
 Twitter: https://x.com/vycoax
 
 Letterboxd: [https://letterboxd.com/vtcas/](url)
