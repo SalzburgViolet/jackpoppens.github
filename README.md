@@ -17,8 +17,6 @@ LinkedIn: [https://www.linkedin.com/in/jack-poppens-0375ab308/](url)
 
 email: jackpoppens@gmail.com or JPOPPENS@email.sc.edu
 
-Twitter: https://x.com/vycoax
-
 Letterboxd: [https://letterboxd.com/vtcas/](url)
 # Research
 [https://www.academia.edu/128509553/Exploring_the_Circumstances_of_Ukrainians_in_Germany_Before_Versus_After_the_Russian_Invasion_of_Ukraine](url)
