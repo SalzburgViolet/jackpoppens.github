@@ -1,5 +1,5 @@
 # jackpoppens.github
-My amusings.
+Hello!
 # About Me
 ![Me](https://github.com/user-attachments/assets/fc12cc0a-7909-48da-a563-8e20bef1e3c4)
 
