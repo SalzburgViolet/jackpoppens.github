@@ -24,8 +24,10 @@ Letterboxd: [https://letterboxd.com/vtcas/](url)
 Soon to be published: Comparative Politics of Pacific States: Response to American and Chinese Interests with UOFSC Professor of Political Science Katherine Barbieri
 
 # Archive
-I really like Edward Yang. His versatility in film will never be forgotten.
 ![ojh](https://github.com/user-attachments/assets/6f0a1277-fd6c-478a-be25-63a912749aa5)
+
+I really like Edward Yang. His versatility in film will never be forgotten.
+
 
 
 
