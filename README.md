@@ -3,7 +3,7 @@ Hello!
 # About Me
 ![Me](https://github.com/user-attachments/assets/fc12cc0a-7909-48da-a563-8e20bef1e3c4)
 
-First-year International Studies undergraduate student at University of South Carolina -- Undergraduate Researcher at the College of Arts and Sciences (CAS)
+First-year International Studies undergraduate student at University of South Carolina -- Undergraduate Researcher at the McCausland College of Arts and Sciences
 
 I can speak some Japanese, some Russian, and little Mandarin. I love the snow (get me out of South Carolina) and books.
 # Where Am I?
